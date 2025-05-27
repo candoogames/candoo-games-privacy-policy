@@ -1,2 +1,2 @@
-# party-fishing-privacy-policy
-Party Fishing Privacy Policy by Candoo Games
+# Candoo-Games-Privacy-Policy
+Games Privacy Policy by Candoo Games
